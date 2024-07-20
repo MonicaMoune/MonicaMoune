@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on research or projects.
 - 📫 How to reach me monica.mu@gmail.com
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: i marry peole legally as a sidekick. 
+- ⚡ Fun fact: I marry people legally as a sidekick. 
 
 <!---
 MonicaMoune/MonicaMoune is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
