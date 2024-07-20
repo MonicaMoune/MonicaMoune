@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MonicaMoune
-- 👀 I’m interested in science, physics, sports.
-- 🌱 I’m currently learning about baby sleeping.
+- 👀 I’m interested in ai, science, physics, sports.
+- 🌱 I’m currently learning about baby sleeping to become a paediatric sleep consultant.
 - 💞️ I’m looking to collaborate on research or projects.
 - 📫 How to reach me monica.mu@gmail.com
 - 😄 Pronouns: She/her
